@@ -1,4 +1,4 @@
 # tärning
 
 
-Här kommer jag lägga upp en av mina favourit egenskapade webbisda.
+Här har jag lagt upp en av mina favorit egenskapade webbsida.
